@@ -1,4 +1,4 @@
-# 
+# vip nft wash trading bot | volume-analysis + whitelist-bypass is the best nft wash trading bot, featuring volume-analysis and whitelist-bypass. Fast, smart, and optimized for NFT
 
 
 
